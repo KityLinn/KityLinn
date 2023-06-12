@@ -1,4 +1,4 @@
-# Hello I'm KittyLinn
+# Hello I'm Linn
 
 ## About me
 
